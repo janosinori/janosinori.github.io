@@ -1,1 +1,0 @@
-# janosinori.github.io
